@@ -1,4 +1,4 @@
-### heyo im clo (^_^) I really like drawing and really wanna draw for projects in the future 🦭
+### heyo im clo (^_^) I really like drawing and really wanna draw for projects in the future. but for github well i dont have much to expect 🦭
 
 <!--
 **kdz05/kdz05** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
